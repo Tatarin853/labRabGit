@@ -1,2 +1,1 @@
-
-https://en.wikipedia.org/wiki/Comparison_of_version-control_software
+А вот меня ты так и не прочитал!
